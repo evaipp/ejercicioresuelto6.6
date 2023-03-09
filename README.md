@@ -1,0 +1,1 @@
+# ejercicioresuelto6.6
